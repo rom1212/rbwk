@@ -4,3 +4,10 @@
 # Chapter 15,16
 * 【生命品格】雖然有神的約定、預言和應許，亞伯蘭和撒萊還是在長長的等候中軟弱，試圖用人的方法得到神的應許。我是否也曾在/正在等待中軟弱？亞伯蘭和撒萊的故事給我怎樣的提醒？
 * 【價值定位】夏甲雖然身爲奴僕，却仍然被神看顧。她的故事在今天給我怎樣的鼓勵和安慰？
+
+# Chapter 17
+* when - how old is Ishmael
+  * 86 born, 99 now, so it is 13 years old
+* What did God say to Abram? - listing
+* How - 
+  * ch15:8
